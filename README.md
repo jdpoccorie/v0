@@ -73,7 +73,7 @@ del Ecuador Empresa Pública – FEEP
 
 
 La visión de RUTAS fue
-transformar oportunidades de
+transformar oportunidades d e
 negocio en oportunidades de
 desarrollo. RUTAS entendió el
 TRC como forma de hacer turismo
@@ -427,6 +427,37 @@ por gente de las propias comunidades y responsables de la gestión de los operad
 de TRC.
 
 # Alianzas publico-privadas-comunitarias estrategicas
+
+
+
+# APUNTES 13.12
+
+## TURISMO COMPETITIVO
+* ¿Por qué es importante visitar al niño? (exponer importancia)
+* Explicar escalabilidad
+* Investigar más circuitos turísticos potenciales Perú
+* Servicios básicos (Desarrollo)
+	* transporte
+	* alojamiento
+	* alimentación -> cocina participativa
+* Capacitación en la calidad del servicio
+* Tiempo de capacitación - Modelo de capacitación
+* ¿Cuanto tiempo se queda un turista en el país?
+
+## ALIANZAS PÚBLICO PRIVADAS
+* Infraestructura para ir a los destinos turísticos
+* Servicios básicos (Desarrollo)
+* ALIADOS
+
+## EMPRENDIMIENTO
+* Costos - de alojamiento, etc
+
+
+* ¿Cuánto tiempo desde ahora nos va a tomar desde ahora hacer el primer circuito?
+* Si no ganamos como lo vamos a hacer?
+* Si ganamos por donde empezaremos
+
+
 
 
 
