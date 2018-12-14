@@ -459,6 +459,42 @@ de TRC.
 
 
 
+## PROBLEMA
+
+* NO conocemos Cusco
+* turismo masivo y riesgo de atractivos turisticos
+* no aprovechamos otros atractivos
+* Olvidamos nuestro patrimonio oral e inmaterial
+* desempleo juvenil
+* jovenes explotados
+
+## SOLUCIÓN
+
+**mencionar que tendremos convenios**
+
+Programa de capacitacion 3 modulos (respaldado por plataforma digital)
+1. habilidades sociales
+2. competencias emprendedoras
+3. creacion de circuito
+
+Creacion de circuitos disruptivos y conexion de clientes con el colaborador
+
+Explicacion de algunos circuitos urbanas y rurales
+
+Revalorar las costumbres y creencias tradicionales que se estan perdiendo
+
+## MODELO DE NEGOCIO
+
+Zonas rurales que no son consideradas en la oferta turística
+
+Etrega de souvenirs convenio bellas artes
+
+Leyenda de naylamp
+sirenas rosadas 
+
+
+
+
 
 
 
