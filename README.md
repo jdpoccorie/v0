@@ -81,6 +81,7 @@ complementario a las formas
 tradicionales.
 
 
+```
 “Considero que RUTAS se ha
 diferenciado frente a otras
 intervenciones de TRC en
@@ -99,7 +100,7 @@ diferencia”.
 Rubén Velalcázar,
 Director de Gestión Productiva
 del Gobierno Provincial
-de Imbabura, Ecuador```
+de Imbabura, Ecuador
 ```
 
 ```
